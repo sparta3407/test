@@ -1,0 +1,1 @@
+C:\Users\Public\Music\capture.png  C:\Users\Public\Music\w27.png
